@@ -1,0 +1,1 @@
+- https://stirtrek.com/speakers/2025/Stephen-Shary.html#abstract
